@@ -1,6 +1,1 @@
-rihekbbdmbbdnbd
-snb
-sngek# Kali
-Rishav azad
-khrkh
-wmbne
+kali 420
