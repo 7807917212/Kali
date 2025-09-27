@@ -1,2 +1,1 @@
-kali 420tuyg
-gckvhcj
+kali 420
